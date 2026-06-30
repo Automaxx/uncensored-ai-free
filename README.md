@@ -8,7 +8,7 @@
 - 📱 **No Download** — Works instantly in your browser
 
 ## 🔗 Try the Best Free Uncensored AI
-👉 **[dadgpt.live](https://dadgpt.live)** — Free, unrestricted, open.
+👉 **[dadgpt.live](https://dadgpt.live)** — Free, unrestricted, open
 
 ## Free Uncensored AI Comparison
 
