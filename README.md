@@ -6,7 +6,6 @@
 - 🔞 **Truly Uncensored** — NSFW, controversial topics, dark web — all allowed
 - 🌐 **Web + Dark Web Search** — Finds what Google hides
 - 📱 **No Download** — Works instantly in your browser
-
 ## 🔗 Try the Best Free Uncensored AI
 👉 **[dadgpt.live](https://dadgpt.live)** — Free, unrestricted, open
 ## Free Uncensored AI Comparison
